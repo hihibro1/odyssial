@@ -1,30 +1,64 @@
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[新𝖻𝗈𝗈𝗄!](https://tsukkiii.atabook.org/)ㅤ꒰ঌᰔᩚ໒꒱ㅤ [strawpage!](https://wifies1.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[roblox!](https://www.roblox.com/users/1919254040/profile) ㅤ
+
 <div align="center">
-
-<p align="center"></strong><br><a href="https://hits.sh/github.com/odyssial/"><img alt="Hits" src="https://hits.sh/github.com/odyssial.svg?label=%E2%80%9C%20it's%20all%20yours%20.&extraCount=1676&color=adbc3b&labelColor=3f3b3b"/></a></p>
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?weight=435&duration=2000&pause=5&color=9080B2&center=true&vCenter=true&multiline=true&width=435&height=75&lines=i'm+going+to+remember+you;as+the+wifies+i+used+to+know" alt="Typing SVG" /></a></p>
-
-   <p align="center"
-      
-<sub>[rentry](https://rentry.co/odyssial) • [ata](https://directorfies.atabook.org/) • [prns.cc](https://pronouns.cc/@directorf1es) • [tiktok](https://www.tiktok.com/@midoninin)</sub>
-<br><sub> gift me wifies or zam ponies :o ? 
-<br>or whisp if u do comms, i like ponies... </sub>
-<br>
-<br>
+   
 ———————— ⠀![spyglass](https://i.postimg.cc/YSPHzsxx/Spyglass-29-JE3-BE1-(1).png)⠀ ————————
 
- <p align="center"
-
-<img
-        src="https://i.postimg.cc/K8bjGN7j/Ssstwitter-Com-1778182855531.gif" 
-        width=60%
-        title="art by @zuristiie"
-        alt="art by @zuristiie" >
-
-
-<p align="center"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31i64oieobgxb6wqleuqf4ua3whq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false"></p>
+ㅤ<img width="634" height="418" alt="parrotwifies" src="https://github.com/user-attachments/assets/620a5db1-7395-4759-8a1a-9a0efa14f2b0" />
 
 <p align="center"> 
   <p align="center">
 <a 
+   
+ ㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z82_20260509001212.png" alt="image" width="550" />
 
-`ac. zuristiie on twitter`
+ $$\color{#AD9C70}{\text{˚˖𓍢ִ໋❀ tsukii !!}}$$
+ 
+ $$\color{#BC7EA5}{\text{•  i usually sit with my friends but if you see me lounging around feel free to sit with me! }}$$
+
+ $$\color{#BC7EA5}{\text{•  multifandom, multishipper }}$$
+ 
+ $$\color{#BC7EA5}{\text{•  don′t copy my skins or any,! }}$$
+  
+ $$\color{#BC7EA5}{\text{•  i can be afk sometimes suddenly }}$$
+ 
+ </a>
+</p>
+ <div align="center">
+ <details> <summary> $${\color{#AD9C70} ⪩♡⪨ \space little \space info \space !!}$$ </summary>
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ 
+<p align="left" dir="auto" >  
+ <img align="left" width="205" src="https://file.garden/ad5gQNfoF0kAW8gS/.png">
+</p> 
+
+
+
+
+ <img align="left" width="100" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z26_20260415162241.png"> 
+</a>
+
+
+
+ <p align="left"> $$\color{#BC7EA5}{\text{ •• if i dont respond to messages very quickly. im afk or offtab, }}$$ㅤㅤ 
+  
+ <p align="left"> $$\color{#BC7EA5}{\text{ •• if you make me uncomfortable, i will block you or distance myself from you, }}$$
+  
+ <p align="left"> $$\color{#BC7EA5}{\text{ •• but im a chill person so its very rare when i do that! }}$$
+ 
+ </p>
+</p>
+<p align="left" dir="auto">‎ ‎ ‎ </p>
+<p align="left" dir="auto">‎ ‎ ‎ </p>
+</details>
+
+<p align="center"> 
+
+
+<p align="center">
+<img align="center" width="400" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z41_20260421020930.png">
+</p>
+
+`art from . fuziyamas !! `
