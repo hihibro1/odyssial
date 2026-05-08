@@ -1,30 +1,12 @@
 <div align="center">
-
-<p align="center"></strong><br><a href="https://hits.sh/github.com/odyssial/"><img alt="Hits" src="https://hits.sh/github.com/odyssial.svg?label=%E2%80%9C%20it's%20all%20yours%20.&extraCount=1676&color=adbc3b&labelColor=3f3b3b"/></a></p>
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?weight=435&duration=2000&pause=5&color=9080B2&center=true&vCenter=true&multiline=true&width=435&height=75&lines=i'm+going+to+remember+you;as+the+wifies+i+used+to+know" alt="Typing SVG" /></a></p>
-
-   <p align="center"
-      
-<sub>[rentry](https://rentry.co/odyssial) • [ata](https://directorfies.atabook.org/) • [prns.cc](https://pronouns.cc/@directorf1es) • [tiktok](https://www.tiktok.com/@midoninin)</sub>
-<br><sub> gift me wifies or zam ponies :o ? 
-<br>or whisp if u do comms, i like ponies... </sub>
-<br>
-<br>
+   
 ———————— ⠀![spyglass](https://i.postimg.cc/YSPHzsxx/Spyglass-29-JE3-BE1-(1).png)⠀ ————————
 
- <p align="center"
 
-<img
-        src="https://i.postimg.cc/K8bjGN7j/Ssstwitter-Com-1778182855531.gif" 
-        width=60%
-        title="art by @zuristiie"
-        alt="art by @zuristiie" >
-
-
-<p align="center"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31i64oieobgxb6wqleuqf4ua3whq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false"></p>
+<img width="634" height="418" alt="ezgif com-crop (10)" src="https://github.com/user-attachments/assets/ab6bb022-1b0d-4ccd-be77-91482238a9ee" />
 
 <p align="center"> 
   <p align="center">
 <a 
 
-`ac. zuristiie on twitter`
+`art from . fuziyamas !! `
